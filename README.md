@@ -1,1 +1,3 @@
-# rsschool-cv
+
+https://JackBlaaack.github.io/rsschool-cv/
+
